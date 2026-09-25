@@ -1,0 +1,1 @@
+A moral da historia para mim foi que ao longo do tempo as pessoas começaram a terceirizar o seu pensamento para uma máquina resolver, pois ela é capaz de fornecer a resposta "certa" em qualquer circustancia porém você nunca sabera se esse certo cabe na sua situação.
